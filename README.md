@@ -1,3 +1,10 @@
 # perfekt_csapatmunka_11_01_2025
 
-#Éva komment
+
+
+
+# valami csak sikerül
+
+
+
+# igen sikerül
